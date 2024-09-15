@@ -20,4 +20,7 @@
 
 ## 영상
 
+https://github.com/user-attachments/assets/84fb4e7d-e496-417c-a6bf-dcca005a6d0b
+
+
 
